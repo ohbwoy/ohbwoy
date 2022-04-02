@@ -1,4 +1,4 @@
-Reach me on Discord -> ohbwoy
+Reach me: **discord@ohbwoy**
 
 <!---
 ohbwoy/ohbwoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
