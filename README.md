@@ -1,4 +1,3 @@
-Twitter: **@szpicz_k**<br>
 Discord: **ohbwoy#3337**
 
 <!---
